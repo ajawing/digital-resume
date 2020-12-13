@@ -23,10 +23,13 @@ unique projects
   - Worked closely with the CEO and graphic designers on the development, design, management, and implementation of our marketing and specific brand image.
   - Created and maintained visual identity through social media platforms including Google+, Facebook, Instagram, and Pinterest by creating, editing and posting curated content and imagery, improving customer engagement, and growing our social media following
   - Became an advocate for Judith Bright Jewelry by engaging customers in product specific dialogue to better understand the extensive jewelry lines.
-  - **_Technologies used:_** CSS, React, TypeScript, Gatsby, GraphQL.
 <br><br>
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+**Studio Manager** @ [Michelle Armas Fine Art](https://www.michellearmas.com/) _(2014 - 2017)_ <br>
+  - Personal and administrative assistant to acclaimed Atlanta artist whose duties included daily operations, managing online e-commerce website, shipping of large and small scale prints and original artworks, bookkeeping, and stretching canvases.
+  - Coordinated contact between gallery representatives and clients looking to communicate with the artist.
+  - Responsible for maintaining cleanliness and organization of the studio.
+<br><br>
 
 ### Markdown
 
