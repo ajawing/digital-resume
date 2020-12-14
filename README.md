@@ -4,7 +4,7 @@ _Marketing and Design based in Atlanta, Georgia_ <br>
 
 [Email](mailto:aja.wing@outlook.com) / [LinkedIn](https://www.linkedin.com/in/aja-wing/) / [GitHub](https://github.com/ajawing/)
 
-## Experience
+## 🎨 Experience
 
 **Marketing and Design Associate** @ [Gregg Irby Gallery](https://www.greggirbygallery.com/) _(July 2020 - Present)_ <br>
   - Connecting & building lasting relationships in the design industry
@@ -39,7 +39,7 @@ _Marketing and Design based in Atlanta, Georgia_ <br>
   - Responsible for preparing and assembling equipment and lighting sets
 <br><br>
 
-## Internships
+## 📌 Internships
 
 **Gallery Assistant** @ Kathleen Cullen Fine Art _(2010 - 2011)_ <br>
 <br><br>
@@ -50,7 +50,7 @@ _Marketing and Design based in Atlanta, Georgia_ <br>
 **Graphic Designer** @ Jeremy Vaughn Design (http://www.avaughndesign.com/) _(2010 - 2012)_ <br>
 <br><br>
 
-## 🎓 Education
+## 👩🏻‍🎓 Education
 
 **BFA Studio Art** emphasis in Graphic Design<br>
 [University of Mississippi](https://olemiss.edu/) - Oxford, Mississippi _(Aug 2007 - May 2012)_ <br>
