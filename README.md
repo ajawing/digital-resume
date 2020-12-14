@@ -41,7 +41,7 @@ _Marketing and Design based in Atlanta, Georgia_ <br>
 
 ## 📌 Internships
 
-**Gallery Assistant** @ Kathleen Cullen Fine Art _(2010 - 2011)_ <br>
+**Gallery Assistant** @ Kathleen Cullen Fine Art _(2011)_ <br>
 <br><br>
 
 **Branding and Social Media Assistant** @ SEW MONI _(2011)_ <br>
