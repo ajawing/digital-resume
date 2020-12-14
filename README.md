@@ -47,7 +47,7 @@ _Marketing and Design based in Atlanta, Georgia_ <br>
 **Branding and Social Media Assistant** @ SEW MONI _(2011)_ <br>
 <br><br>
 
-**Graphic Designer** @ [Jeremy Vaughn Design] (http://www.avaughndesign.com/) _(2010 - 2012)_ <br>
+**Graphic Designer** @ [Jeremy Vaughn Design](http://www.avaughndesign.com/) _(2010 - 2012)_ <br>
 <br><br>
 
 ## 👩🏻‍🎓 Education
