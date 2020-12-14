@@ -56,6 +56,7 @@ _Marketing and Design based in Atlanta, Georgia_ <br>
 <br><br>
 
 **Junior Graphic Designer** @ [Jeremy Vaughn Design](http://www.avaughndesign.com/) - Oxford, Mississippi _(2010 - 2012)_ <br>
+  - Collaborated with the in-house design team to develop comprehensive brand strategy and campaigns with creative elements including logo development, marketing, print design, and copywriting 
 <br><br>
 
 ## 👩🏻‍🎓 Education
