@@ -7,19 +7,17 @@ _Marketing and Design based in Atlanta, Georgia_ <br>
 ## 🎨 Experience
 
 **Marketing and Design Associate** @ [Gregg Irby Gallery](https://www.greggirbygallery.com/) - Atlanta, Georgia _(July 2020 - Present)_ <br>
-  - Connecting & building lasting relationships in the design industry
-  - Assisting with social media content & proactive interaction
-  - Designing bi-monthly promotional newsletters to creatively market the gallery & our artists
-  - Managing commissions & special designer projects
-  - Photographing & digitally formatting paintings for the website
-  - Using Adobe CS to create virtual artwork placement options for clients
-  - Working one-on-one with designers & clients to curate paintings for their unique projects
-  - Assisting directors with event planning & special marketing projects
+  - Responsible for scheduling, budget, resources and deliverables for special designer requests and commissions. 
+	-	Collaborates with Gallery Director with event planning and marketing projects.
+	-	Provide invoice materials, quotes, and inventory orders.
+	-	Responsible for all digital formatting, virtual artwork placement, and creative enterprises. 
+	-	Assist in the coordination of install logistics of residential and commercial projects with designers and their clients.
+	-	Connect and build lasting relationships between artists and the design industry.
 <br><br>
 
 **Brand Manager** @ [Judith Bright Jewelry](https://judithbright.com/) - Atlanta, Georgia _(2015 - 2020)_ <br>
-  - Worked closely with the CEO and graphic designers on the development, design, management, and implementation of our marketing and specific brand image
-  - Created and maintained visual identity through social media platforms including Facebook, Instagram, and Pinterest by creating, editing and posting curated content and imagery, and growing our social media following
+  - Managed all brand content deliverables, maintained visual identity through all creative and e-commerce platforms.
+  - Led the Atlanta brick and mortar renovation project from initiation phase to final implementation, procuring resources and maintaining budget within schedule.  
   - Became an advocate for Judith Bright Jewelry by engaging customers in product specific dialogue to better understand the extensive jewelry lines
 <br><br>
 
