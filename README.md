@@ -28,10 +28,6 @@ _Marketing and Design based in Atlanta, Georgia_ <br>
   - Worked with clients to ensure completion of sales while providing excellent customer service.
 <br><br>
 
-**Fulfillment Administrator** @ [Jessica Durrant Illustration](http://jessicadurrant.com/) - Atlanta, Georgia _(2016 - 2017)_ <br>
-  - Managed the order fulfillment process from inception to shipping , including but not limited to production, administration, tracking process, and customer service
-<br><br>
-
 ## 📌 Internships
 
 **Graphic Designer** @ [Jeremy Vaughn Design](http://www.avaughndesign.com/) - Oxford, Mississippi _(2010 - 2012)_ <br>
