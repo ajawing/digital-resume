@@ -44,5 +44,5 @@ _Marketing and Design based in Atlanta, Georgia_ <br>
 
 ## 👩🏻‍🎓 Education
 
-**BFA Studio Art** emphasis in Graphic Design<br>
+**BFA Graphic Design** <br>
 [University of Mississippi](https://olemiss.edu/) - Oxford, Mississippi _(Aug 2007 - May 2012)_ <br>
