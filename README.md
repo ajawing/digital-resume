@@ -34,7 +34,7 @@ _Marketing and Design based in Atlanta, Georgia_ <br>
 
 ## 📌 Internships
 
-**Junior Graphic Designer** @ [Jeremy Vaughn Design](http://www.avaughndesign.com/) - Oxford, Mississippi _(2010 - 2012)_ <br>
+**Graphic Designer** @ [Jeremy Vaughn Design](http://www.avaughndesign.com/) - Oxford, Mississippi _(2010 - 2012)_ <br>
 
 <br><br>
 
