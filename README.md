@@ -22,7 +22,7 @@ _Marketing and Design based in Atlanta, Georgia_ <br>
   - Served as the connector between sales and operations team.
 <br><br>
 
-**Studio Manager** @ [Michelle Armas Fine Art](https://www.michellearmas.com/) - Atlanta, Georgia _(2013 - 2016)_ <br>
+**Studio Manager** @ [Michelle Armas Fine Art](https://www.michellearmas.com/) - Atlanta, Georgia _(2013 - 2015)_ <br>
   - Managed e-commerce, sales, print production, materials and fulfillment procedures.
   - Performed daily studio operations, indexing of all artwork and studio organization.
   - Worked with clients to ensure completion of sales while providing excellent customer service.
