@@ -6,7 +6,7 @@ _Marketing and Design based in Atlanta, Georgia_ <br>
 
 ## 🎨 Experience
 
-**Creative Marketing and Design Manager** @ [Gregg Irby Gallery](https://www.greggirbygallery.com/) - Atlanta, Georgia _(July 2020 - Present)_ <br>
+**Creative Marketing and Design Manager** @ [Gregg Irby Gallery](https://www.greggirbygallery.com/) - Atlanta, Georgia _(2020 - Present)_ <br>
   - Schedule, resource and deliver special designer requests and commissions on time and on budget.
   - Partner with Gallery Director on event planning and marketing projects.
   - Develop invoice materials, quotes, and inventory orders.
@@ -14,7 +14,7 @@ _Marketing and Design based in Atlanta, Georgia_ <br>
   - Coordinate installation of residential and commercial projects with designers and their clients.
 <br><br>
 
-**Brand Manager** @ [Judith Bright Jewelry](https://judithbright.com/) - Atlanta, Georgia _(2016 - 2020)_ <br>
+**Brand Manager** @ [Judith Bright Jewelry](https://judithbright.com/) - Atlanta, Georgia _(2015 - 2020)_ <br>
   - Managed a team of four consultants.
   - Created brand content deliverables and ensured visual identity continuity through all creative and e-commerce platforms.
   - Led the Atlanta brick and mortar store renovation project from initiation phase to final implementation, procuring resources and delivering on-time and on budget.
@@ -45,4 +45,4 @@ _Marketing and Design based in Atlanta, Georgia_ <br>
 ## 👩🏻‍🎓 Education
 
 **BFA Graphic Design** <br>
-[University of Mississippi](https://olemiss.edu/) - Oxford, Mississippi _(Aug 2007 - May 2012)_ <br>
+[University of Mississippi](https://olemiss.edu/) - Oxford, Mississippi _(2012)_ <br>
